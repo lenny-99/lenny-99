@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lenny-99
+- 👋 Hi, I’m Laus Creations Limited
 - 👀 I’m interested in web design and development
 - 🌱 I’m currently learning web design
 - 💞️ I’m looking to collaborate on web design
